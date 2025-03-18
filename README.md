@@ -33,3 +33,5 @@ March 2, 2025 greeted her
  March 3  2025 greeted heeer!
 hshee
 March 17, 2025 11:48 overtime ty naman, pag abot ko ari di si kekel, manang lyn, nong jerson, mika, manang faith, peter and kaykay ara sila sasagwa naga tambay kag ga istoryahanay, so happy and wala lang. nagpaleganes sila daan mga 11:20 na sila kapauli, with kids.
+
+March 19, 2025 - Its nanay's birthday! happy 65th birthday nanay I love you. wishing you good health!. its 3:30 am here, may duty pako 6 am karon. I hope indi ko mag overtime. hay buhay.
