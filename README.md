@@ -38,3 +38,6 @@ March 19, 2025 - Its nanay's birthday! happy 65th birthday nanay I love you. wis
 
 March 20, 2025 - I greeted her, duty nanaman.4
 March 21, 2025- 6-3am duty ko out ko is 4:00. amat2 lang ah.
+
+
+March 30, 2025
