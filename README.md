@@ -18,6 +18,7 @@ Feb 9 2025. Eto nainspired nanaman, kahapon nasad boi dahil na reject sa final i
 Feb 14, 2025- I will have an application approval later. i don't know what this role but ill do it..
 
 
+
 Feb 19, 2025 tired and very costly the pre employment 
 
 Feb 20, 2025 - we woke up early 4:30 am i don't know how this day will went.
