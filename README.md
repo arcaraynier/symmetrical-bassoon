@@ -2,7 +2,7 @@ no# symmetrical-bassoon
 A project
 
 Just a project with nothing yet inside of it....
-....
+.....
 Yeah yeah yeah.  hey......,.
 ee....
 ...,..,
@@ -44,3 +44,5 @@ March 21, 2025- 6-3am duty ko out ko is 4:00. amat2 lang ah.
 March 30, 2025
 
 May 2, 2025.
+
+May 8, 2025 
